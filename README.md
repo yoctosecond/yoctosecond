@@ -1,4 +1,4 @@
-## print(" hi there \\o/ ") <img src="https://user-images.githubusercontent.com/5679180/79618120-0daffb80-80be-11ea-819e-d2b0fa904d07.gif" width="27px">
+## <img src="https://github.com/yoctosecond/yoctosecond/blob/main/assets/amogosdamce.gif" width="60px"> :D HAAAAAAAAAAI <img src="https://github.com/yoctosecond/yoctosecond/blob/main/assets/amogosdamce.gif" width="60px">
 
 <img src="https://github.com/yoctosecond/yoctosecond/blob/main/assets/grogudrinking%3E%3C.gif" align="left">
 <p><img src="https://github.com/yoctosecond/yoctosecond/blob/main/assets/bmodancing.gif" width="40vw"><em> hows it going?</em></p>
